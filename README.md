@@ -6,6 +6,58 @@
 <p class="" data-start="825" data-end="1032">This is where <strong data-start="839" data-end="858">QuickVSL Bundle</strong> comes in. It’s the ultimate all-in-one solution for creating <strong data-start="920" data-end="966">high-converting video sales letters (VSLs)</strong>, and it’s about to save you time, money, and endless frustration.</p>
 <p class="" data-start="1034" data-end="1101">Let’s dive in and see how QuickVSL Bundle can skyrocket your sales.</p>
 
+# 🎬 QuickVSL – Full Funnel + Bonus Vault Access
+
+## 🚀 QuickVSL Bundle Deal (SAVE $153)  
+🎁 Get QuickVSL FE + ALL Upgrades for a One-Time Payment  
+💸 Use Coupon Code: **QBUNDLE** for $50 OFF  
+Type in your browser:  
+`jvz6[dot]com/c/672499/418045`
+
+---
+
+## 🔹 QuickVSL Front-End  
+Type: `jvz3[dot]com/c/672499/417987`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: QuickVSL Pro**  
+  Type: `jvz2[dot]com/c/672499/417967`
+
+- **OTO 2: QuickVSL Unlimited**  
+  Type: `jvz1[dot]com/c/672499/417991`
+
+- **OTO 3: QuickVSL DFY Agency**  
+  Type: `jvz3[dot]com/c/672499/418007`
+
+---
+
+## 🎁 Check Bonus Page  
+See everything you'll get from me:  
+`williamreview[dot]com/quickvsl`
+
+---
+
+## 💥 Bonus Vault  
+🔥 **Mega 5,000 Bonuses – Total Value: $2,976,749+**  
+Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Order via any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. I’ll deliver all bonuses within **12 hours** — be sure to confirm via email.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At the bottom of the checkout page, make sure it shows:  
+**Affiliate: 672499 - William Johnson**
 
 <hr class="" data-start="1103" data-end="1106" />
 
@@ -110,3 +162,55 @@
 
 <hr class="" data-start="6431" data-end="6434" />
 <p class="" data-start="6436" data-end="6534"><strong data-start="6436" data-end="6534">Ready to unlock the power of video marketing?<br data-start="6483" data-end="6486" />Click below and grab your QuickVSL Bundle now!</strong></p>
+# 🎬 QuickVSL – Full Funnel + Bonus Vault Access
+
+## 🚀 QuickVSL Bundle Deal (SAVE $153)  
+🎁 Get QuickVSL FE + ALL Upgrades for a One-Time Payment  
+💸 Use Coupon Code: **QBUNDLE** for $50 OFF  
+Type in your browser:  
+`jvz6[dot]com/c/672499/418045`
+
+---
+
+## 🔹 QuickVSL Front-End  
+Type: `jvz3[dot]com/c/672499/417987`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: QuickVSL Pro**  
+  Type: `jvz2[dot]com/c/672499/417967`
+
+- **OTO 2: QuickVSL Unlimited**  
+  Type: `jvz1[dot]com/c/672499/417991`
+
+- **OTO 3: QuickVSL DFY Agency**  
+  Type: `jvz3[dot]com/c/672499/418007`
+
+---
+
+## 🎁 Check Bonus Page  
+See everything you'll get from me:  
+`williamreview[dot]com/quickvsl`
+
+---
+
+## 💥 Bonus Vault  
+🔥 **Mega 5,000 Bonuses – Total Value: $2,976,749+**  
+Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Order via any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. I’ll deliver all bonuses within **12 hours** — be sure to confirm via email.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At the bottom of the checkout page, make sure it shows:  
+**Affiliate: 672499 - William Johnson**
